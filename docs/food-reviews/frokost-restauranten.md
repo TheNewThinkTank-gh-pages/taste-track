@@ -18,4 +18,4 @@ _Bottom_<br>
 
 Frokostrestauranten 1971 was unfortunately permanently closed August 2025.
 
-***** Overall a perfect score of 5 stars, highly recommended!
+★★★★★ Overall a perfect score of 5 stars, highly recommended!
