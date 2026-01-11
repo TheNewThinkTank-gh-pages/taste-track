@@ -1,2 +1,3 @@
-# mkdocs-material-template
-Template repository for mkdocs setup with material and GitHub Pages
+# Taste Track
+
+Reviews of cafés and restaurants.
